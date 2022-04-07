@@ -11,14 +11,19 @@ Exceptional customer service and decision-making skills, with strong work ethic 
 
 ## Work Experience (only last 10 years)
 
+### McDonald's (Seatac, WA)
+![McDonalds](img/mcdonalds.jpg)
+
+* December 2017 - January 2019
+* **Position:** *Customer Service Representative, Team Lead*
+* I helped train many of the new employees and worked my way up the ranks quickly within the first couple of months working. I had become the team lead and was offered a manager position, but turned it down due to school and other obligations. First Job, amazing experience.
+
 ### Brown Bear Car Wash (Renton, WA)
 ![Brown_bear](img/IMG_2443.jpg)
 
 * February 2019 - Current
-* **Current Position:** *PIC (Person-in-Charge), Shift-Lead*
+* **Position:** *PIC (Person-in-Charge), Shift-Lead*
 * My role at my workplace was a shift lead and back-up assistant manager. I help consistently push 300-800 cars per day and make sure my crew is taken care of and also make it a point to make the customers feel welcome and appreciated for their time.
-
-
 
 
 ### University of Washington (Seattle, WA)
